@@ -1,1 +1,1 @@
-i think axl school is a good school
+yeah think axl school is a good school
